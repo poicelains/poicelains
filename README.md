@@ -3,5 +3,4 @@
    ⠀⠀⠀⠀꣑୧⠀⠀｡⠀⠀or vileiur⠀◡ ⠀he⠀ﾉ⠀him
    ⠀⠀⠀ ⠀⠀⠀⠀꒰⠀˖⠀seasian ﹕ eng ⠀& ⠀filo ⠀OK⠀!
 ⠀⠀⠀⠀𓈒⠀⠀˙⠀⠀⠀minor　⠀˖⠀⠀tmasc　⠀˙⠀⠀꒱
-
-[©](https://www.tumblr.com/versay/755548753199611904/self-indulgent-kaveh-graphics?source=share)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [©](https://www.tumblr.com/versay/755548753199611904/self-indulgent-kaveh-graphics?source=share)
